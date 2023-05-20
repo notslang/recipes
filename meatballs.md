@@ -26,6 +26,8 @@
 - 0.5 pound block of mozzarella
 - Prego red pasta sauce
 
+## Instructions
+
 Preheat oven to 350°F
 
 Cut mozzarella into 0.5 inch cubes.
