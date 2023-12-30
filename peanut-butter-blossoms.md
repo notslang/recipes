@@ -6,7 +6,7 @@
 - 1 teaspoon baking soda
 - 0.5 teaspoon salt
 - 4 ounces (1 stick) butter, at room temperature
-- 0.5 cup smooth peanut butter (or other creamy nut butter)
+- 0.5 cup smooth peanut butter
 - 1 cup granulated sugar, plus more for rolling
 - 0.5 tbsp molasses
 - 1 large egg
