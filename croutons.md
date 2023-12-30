@@ -13,10 +13,12 @@ Preheat oven to 375F
 
 Cut sourdough into 1" chunks with crusts still on.
 
-In a bowl, toss sourdough chunks with olive oil, salt, and pepper until they are all coated.
+In a bowl, drizzle olive oil over sourdough chunks until coated.
 
-Transfer to baking sheet or a large cast iron skillet.
+Toss with salt and pepper.
 
-Bake in oven, tossing occasionally, until golden, 10–15 minutes.
+Transfer to large cast iron skillet or baking sheet.
+
+Bake in oven, tossing occasionally, until golden, 15 minutes.
 
 Store in an airtight container at room temperature.
