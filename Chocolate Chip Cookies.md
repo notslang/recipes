@@ -4,17 +4,17 @@
 
 ### Dry
 
-- 2 cups minus 2 tablespoons cake flour
-- 1.66 cups bread flour (8½ ounces)
+- 240g cake flour
+- 240g bread flour
 - 1.25 teaspoons baking soda
 - 1.5 teaspoons baking powder
 - 1.5 teaspoons coarse salt
 
 ### Wet
 
-- 1.25 cups unsalted butter (2½ sticks)
-- 1.25 cups light brown sugar (10 ounces)
-- 1 cup plus 2 tablespoons granulated sugar (8 ounces)
+- 1.25 cups unsalted butter
+- 1 tbsp molasses
+- 510g granulated sugar
 - 2 large eggs
 - 2 teaspoons natural vanilla extract
 
@@ -27,7 +27,7 @@
 
 Sift dry ingredients into a bowl. Set aside.
 
-Using a mixer fitted with paddle attachment, cream butter and sugars together until very light, about 5 minutes. Add eggs, one at a time, mixing well after each addition. Stir in the vanilla. Reduce speed to low, add dry ingredients and mix until just combined, 5 to 10 seconds. Drop chocolate pieces in and incorporate them without breaking them.
+Using a mixer fitted with paddle attachment, cream butter, sugar, and molasses together until very light, about 5 minutes. Add eggs, one at a time, mixing well after each addition. Stir in the vanilla. Reduce speed to low, add dry ingredients and mix until just combined, 5 to 10 seconds. Drop chocolate pieces in and incorporate them without breaking them.
 
 Press plastic wrap against dough and refrigerate for 24 to 36 hours. Dough may be used in batches, and can be refrigerated for up to 72 hours.
 
