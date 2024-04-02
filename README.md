@@ -12,3 +12,9 @@ Brown sugar that you buy for cooking is just white sugar with molasses added in.
 
 - Brown sugar solidifies into a brick, whereas white sugar and molasses are stable for years.
 - Brown sugar is an extra ingredient to keep stocked, especially if you have recipes that call for light or dark brown sugar variants.
+
+### Pre-Shredded Cheese
+
+Do not buy pre-shredded cheeses. They are coated in an anticaking agent. Buy a block of cheese and shread as needed for maximum freshness.
+
+### Parmersan vs Parmersan Reggatano
