@@ -4,7 +4,7 @@
 
 ### Dry
 
-- 2 cups + 2 Tablespoons all-purpose flour (spoon & leveled)
+- 255g all-purpose flour
 - 1 teaspoon cornstarch
 - 1 teaspoon baking soda
 - 0.5 teaspoon salt
