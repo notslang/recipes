@@ -5,9 +5,9 @@
 ### Dry
 
 - 255g all-purpose flour
-- 1 teaspoon cornstarch
-- 1 teaspoon baking soda
-- 0.5 teaspoon salt
+- 1 tsp cornstarch
+- 1 tsp baking soda
+- 0.5 tsp salt
 
 ### Wet
 
