@@ -1,10 +1,10 @@
-# Pizza Dough
+# Neapolitan Pizza Dough
 
 ## Ingredients
 
 ### Dry
 
-- 150 grams 00 flour
+- 150 grams 00 wheat flour
 - 150 grams all-purpose flour
 - 8 grams fine salt
 
