@@ -16,7 +16,6 @@
 
 - 0.75 cup Italian seasoned breadcrumbs
 - 0.5 cup grated Parmesan
-  - Using real Parmesan Reggiano is not necessary, no noticeable difference in flavor.
 - 1 tsp salt
 - 1 tsp pepper
 - dash of cayenne
@@ -26,7 +25,6 @@
 ### Finishing
 
 - 0.5 pound fresh mozzarella
-  - Kraft mozzarella and Great Value low-moisture whole milk mozzarella works and melts well. Fresh mozzarella doesn't melt right. Publix brand mozzarella doesn't melt right either.
 - Prego red pasta sauce
 
 ## Instructions
@@ -48,3 +46,11 @@ Press a chunk of mozzarella in the center of each ball and reform the ball aroun
 Arrange meatballs on a cast iron pan and pour a thin layer of pasta sauce over the top of each ball.
 
 Bake meatballs for 35-40 minutes or until internal temp hits 160F (safe temp for ground beef). Cheese coming out of the meatballs is another good indicator to stop cooking. Cooking time will vary greatly based on size of balls.
+
+## Notes
+
+Using real Parmesan Reggiano is not necessary.
+
+Need to test pecorino cheese.
+
+Kraft brand mozzarella works best and melts well, even when reheating. Great Value brand low-moisture whole milk mozzarella works well too. Fresh mozzarella doesn't melt right. Publix brand mozzarella doesn't melt right either.
