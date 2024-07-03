@@ -16,6 +16,7 @@
 
 - 0.75 cup Italian seasoned breadcrumbs
 - 0.5 cup grated Parmesan
+  - Using real Parmesan Reggiano is not necessary, no noticeable difference in flavor.
 - 1 tsp salt
 - 1 tsp pepper
 - dash of cayenne
@@ -25,6 +26,7 @@
 ### Finishing
 
 - 0.5 pound fresh mozzarella
+  - Kraft mozzarella and Great Value low-moisture whole milk mozzarella works and melts well. Fresh mozzarella doesn't melt right. Publix brand mozzarella doesn't melt right either.
 - Prego red pasta sauce
 
 ## Instructions
