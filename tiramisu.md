@@ -48,7 +48,7 @@ Bring to boil, sugar should dissolve.
 
 Slowly stream coffee syrup into egg yolks while beating with hand mixer. This will pasteurize the egg yolks. Do not cook the egg yolks.
 
-Beat until mixture is thick, with a mousse like texture. About 3 minutes. Mixture will have cooled to room temp
+Beat until mixture is thick, with a mousse like texture (ribbon like). About 3 minutes. Mixture will have cooled to room temp
 
 ### Filling Part 2
 
