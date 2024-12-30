@@ -32,7 +32,7 @@ Cover and chill the dough in the refrigerator for at least 2 hours and up to 4 d
 
 Preheat oven to 350°F. Line baking sheets with parchment paper or silicone baking mats. Set aside.
 
-Roll cookie dough into balls, about 1.5 tbsp of dough per cookie, and arrange 3 inches apart on the baking sheets. Bake for 12-13 minutes or until lightly browned on the sides. The centers will look soft.
+Roll cookie dough into balls, about 30g of dough per cookie, and arrange 3 inches apart on the baking sheets. Bake for 12-13 minutes or until lightly browned on the sides. The centers will look soft.
 
 Remove from the oven and allow cookies to cool on the baking sheet for 5 minutes before transferring to a wire rack to cool completely.
 
