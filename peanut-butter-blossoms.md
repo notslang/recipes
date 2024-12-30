@@ -5,14 +5,13 @@
 - 1.75 cups all-purpose flour
 - 1 teaspoon baking soda
 - 0.5 teaspoon salt
-- 4 ounces (1 stick) butter, at room temperature
+- 0.5 cup unsalted butter, at room temperature
 - 0.5 cup smooth peanut butter
 - 1 cup granulated sugar, plus more for rolling
 - 0.5 tbsp molasses
 - 1 large egg
 - 1 tablespoon milk
 - 1 teaspoon vanilla extract
-- Nonstick spray or vegetable oil for cookie sheet (optional)
 - 5 dozen (one 11-ounce package) Hershey’s Kisses, foil removed
 
 ## Steps
